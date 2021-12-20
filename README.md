@@ -1,0 +1,1 @@
+# ozcanabdullah.github.io
